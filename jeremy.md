@@ -4,6 +4,8 @@
 
 I particularly like to remove software. And if you want to understand my thoughts and feelings, you can pretty much take these two ideas and create conjectures about other things.  For example, does Jeremy like meetings? Only if they get the clarity needed to write software.  Does Jeremy like learning? Yes! Because then I have more tools to help the client and the team! Also, I also like other things—I like to play chess, swing dance, and play video games (don't get me started).
 
+I teach dance at Uptown Swing in Minneapolis weekly on Wednesday nights, so Thursday morning can be a bit tough for me.
+
 ####I work in a slightly odd way
 You may find me floating around aimlessly, I'm usually working on some kind of problem whether it be a chess puzzle or a software puzzle.  Oddly, I've found that I solve most of my problems while walking, that's when I usually think of something.
 
