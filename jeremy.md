@@ -19,3 +19,6 @@ Consulting, has really been my M.O. since I've started in the industry, though I
 
 #### I don't believe that it's a good idea to hide behind ceremony.
 I've been through a few different jobs where people aren't willing to learn, and couch that in professionalism.  By in large, I like getting things done, and if that means I need to shave yaks for the rest of my career—so be it.
+
+## Magenic project counter
+Starting my first project here now!
